@@ -38,3 +38,43 @@ Whats another name for an aging comedian? NotFunny! NotIronicEither!
 11. No Sexual Jokes
 
 12. No jokes?
+
+
+
+Wisdoms:
+
+You can look, if you sit within the tub.
+
+Beware of bubbles in tubs.
+
+If you look and make up rules, sit in the tub with your arms raised.
+
+Let your hair float.
+
+Skin floats.
+
+Dead skin floats.
+
+Bloody crusty scabs??? no honey.
+
+Drugs in the water.
+
+Pruny fingers lead to pruny toes.
+
+Wrinkled fingers can hurt to the touch.
+
+Water can refract light.
+
+Water can reflect light.
+
+Water can make images appear larger than they may appear closer up.
+
+Water can make certain sexual images out of sight.
+
+Water can make things invisible.
+
+I drink water.
+
+I sit in water.
+
+I become water.
