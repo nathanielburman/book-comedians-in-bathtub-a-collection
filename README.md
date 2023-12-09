@@ -13,15 +13,28 @@ It appears, in this matrix, that there is ONE male getting-older-comedian who do
 
 Whats another name for an aging comedian? NotFunny! NotIronicEither!
 
-Rules:
+# Rules:
 
-No Nazi Jokes.
+1. No Nazi Jokes.
 
-No Political Party Jokes.
+2. No Political Party Jokes.
 
-No Gay Jokes.
+3. No Gay Jokes.
 
-No Hate Jokes.
+4. No Hate Jokes.
 
-Remember, this is a bathtub, not a ...
+5. Remember, this is a bathtub, not a ...
 
+6. Not a spinner
+
+7. All Jokes Go Into A Giant Bathtub
+
+8. No Sex Jokes
+
+9. No children in bathtubs
+
+10. No Gay Sex Jokes
+
+11. No Sexual Jokes
+
+12. No jokes?
