@@ -12,3 +12,16 @@ That bloody redhead in a bloody bathtub with a bloody floating President Trump h
 It appears, in this matrix, that there is ONE male getting-older-comedian who does not want to be included in this book who pretends to be a scientista, maybe becaseu wefrwends.
 
 Whats another name for an aging comedian? NotFunny! NotIronicEither!
+
+Rules:
+
+No Nazi Jokes.
+
+No Political Party Jokes.
+
+No Gay Jokes.
+
+No Hate Jokes.
+
+Remember, this is a bathtub, not a ...
+
