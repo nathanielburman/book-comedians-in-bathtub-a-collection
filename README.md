@@ -7,7 +7,7 @@ This app or book will showcase real pictures of the funniest comedians in bathtu
 
 > Bathtubs in Comedian
 
-That bloody redhead in a bloody bathtub with a bloody floating President Trump head, is the only way she's getting in.
+That bloody redhead in a bloody bathtub with a bloody floating President Trump head, is the only way she's getting in. Into this bloody bathtub.
 
 It appears, in this matrix, that there is ONE male getting-older-comedian who does not want to be included in this book who pretends to be a scientista, maybe becaseu wefrwends.
 
