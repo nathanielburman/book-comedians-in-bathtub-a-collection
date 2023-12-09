@@ -13,7 +13,7 @@ It appears, in this matrix, that there is ONE male getting-older-comedian who do
 
 Whats another name for an aging comedian? NotFunny! NotIronicEither!
 
-# Rules:
+# White Rules Only:
 
 1. No Nazi Jokes.
 
